@@ -4,6 +4,10 @@
 
 ★ 𝘗𝘓𝘚 𝘗𝘓𝘚 𝘗𝘓𝘚 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 𝘪𝘧 𝘺𝘰𝘶 𝘭𝘪𝘬𝘦 𝘵𝘧2 𝘰𝘳 𝘵𝘩𝘦 𝘣𝘰𝘺𝘴!
 
+☆ 𝘪 𝘵𝘢𝘭𝘬 𝘢𝘣𝘰𝘶𝘵 𝘸𝘦𝘦𝘥 𝘢 𝘭𝘰𝘵, 𝘬𝘦𝘦𝘱 𝘵𝘩𝘢𝘵 𝘪𝘯 𝘮𝘪𝘯𝘥!
+
+★ if i don't respond to u asap, just whisper! i'll reply as soon as i can!
+
 ![bug](https://graphic.neocities.org/tumblr_o1db93IaFN1umudwxo1_250.png)
 
 __↳__ <sub>dont steal my skins or art !</sub> __↲__
