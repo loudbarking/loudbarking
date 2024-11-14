@@ -15,5 +15,3 @@ __↳__ <sub>DONT STEAL MY SKINS PLEASE !</sub> __↲__
 ★ 𝙞 𝙝𝙤𝙥𝙚 𝙮𝙤𝙪 𝙝𝙖𝙫𝙚 𝙖 𝙜𝙤𝙤𝙙 𝙙𝙖𝙮! 𝙩𝙝𝙖𝙣𝙠𝙨 𝙛𝙤𝙧 𝙫𝙞𝙨𝙞𝙩𝙞𝙣𝙜 ♡
 
 ![broly](https://64.media.tumblr.com/6646d775a25b3e0212fdda18870e4ef4/0156889ba409db7e-50/s400x600/cfd724b6c9787736f348e31215e271a11fd99935.pnj)
-
-![zaza](https://i.imgur.com/9LCtXlR.gif) ![brolyy](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3556e942-5690-48a4-a5ec-1ab0e334ba2d/d4ihu66-5b65f1c7-c7a5-476e-9824-4f2003fd093e.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzM1NTZlOTQyLTU2OTAtNDhhNC1hNWVjLTFhYjBlMzM0YmEyZFwvZDRpaHU2Ni01YjY1ZjFjNy1jN2E1LTQ3NmUtOTgyNC00ZjIwMDNmZDA5M2UuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4B5sH_21vCrbxvWgrf0Js2neuyGjQ7HsQIpieA4cGiw)
