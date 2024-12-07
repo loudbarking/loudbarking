@@ -1,17 +1,19 @@
 ![hi](https://i.imgur.com/Em2whpW.gif)
 
-__↳__ <sub>DONT STEAL MY SKINS PLEASE !</sub> __↲__
+⇢ ˗ˏˋ <ins><sup> **greetings, sillies** </sup></ins> ೃ⁀➷
 
 ![cat](https://graphic.neocities.org/Katze_91.gif)
 
-★ 𝗣𝗟𝗘𝗔𝗦𝗘 𝗜𝗡𝗧𝗘𝗥𝗔𝗖𝗧 𝗶𝗳 𝘄𝗲 𝘀𝗵𝗮𝗿𝗲 𝗶𝗻𝘁𝗲𝗿𝗲𝘀𝘁𝘀 𝗼𝗿 𝗶𝗳 𝘆𝗼𝘂'𝗿𝗲 𝗮 𝗳𝗲𝗹𝗹𝗼𝘄 𝘀𝘁𝗼𝗻𝗲𝗿!
+˚✧ <sub> extra info at [this repository](https://github.com/loudbarking/weedchiefer) </sub>
 
-☆ 𝘀𝗽𝗲𝗮𝗸𝗶𝗻𝗴 𝗼𝗳 𝘄𝗲𝗲𝗱, 𝗶 𝘁𝗮𝗹𝗸 𝗮𝗯𝗼𝘂𝘁 𝗶𝘁 𝗮 𝗹𝗼𝘁! 𝗸𝗲𝗲𝗽 𝘁𝗵𝗮𝘁 𝗶𝗻 𝗺𝗶𝗻𝗱
+✧˚ · . <sub> pls pls pls *interact if we share interests* <3 </sub>
 
-★ 𝗶𝗳 𝗶 𝗱𝗼𝗻'𝘁 𝗿𝗲𝘀𝗽𝗼𝗻𝗱 𝘁𝗼 𝘆𝗼𝘂 𝗮𝘀𝗮𝗽, 𝗷𝘂𝘀𝘁 𝘄𝗵𝗶𝘀𝗽𝗲𝗿! 𝗶'𝗹𝗹 𝘁𝗿𝘆 𝘁𝗼 𝗿𝗲𝗽𝗹𝘆 𝗮𝘀 𝘀𝗼𝗼𝗻 𝗮𝘀 𝗶 𝗰𝗮𝗻!
+˚✧ <sub> if you want to just *take inspiration* from my skins, you can, but *please inform me* (whisper or mention on my atabook!) </sub>
 
-☆ 𝗶𝗳 𝘆𝗼𝘂 𝘁𝗮𝗸𝗲 𝘀𝗺𝗮𝗹𝗹 𝗶𝗻𝘀𝗽𝗼 𝗳𝗿𝗼𝗺 𝗺𝘆 𝘀𝗸𝗶𝗻𝘀, 𝗶 𝗱𝗼𝗻'𝘁 𝗺𝗶𝗻𝗱
+✧˚ · . <sub> often, i'm offtab either playing a video game, or editing a site! </sub>
 
-★ 𝙞 𝙝𝙤𝙥𝙚 𝙮𝙤𝙪 𝙝𝙖𝙫𝙚 𝙖 𝙜𝙤𝙤𝙙 𝙙𝙖𝙮! 𝙩𝙝𝙖𝙣𝙠𝙨 𝙛𝙤𝙧 𝙫𝙞𝙨𝙞𝙩𝙞𝙣𝙜 ♡
+˚✧ <sub> i'm so sorry if i miss a whisper from you :( i'll try to respond most of the time!!! </sub>
+
+:rage1: ↳ **DONT STEAL MY SKINS PLEASE!** ↲ :suspect:
 
 ![broly](https://64.media.tumblr.com/6646d775a25b3e0212fdda18870e4ef4/0156889ba409db7e-50/s400x600/cfd724b6c9787736f348e31215e271a11fd99935.pnj)
