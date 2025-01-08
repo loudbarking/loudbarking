@@ -17,3 +17,5 @@
 :rage1: ↳ **DONT STEAL MY SKINS PLEASE!** ↲ :suspect:
 
 ![broly](https://64.media.tumblr.com/6646d775a25b3e0212fdda18870e4ef4/0156889ba409db7e-50/s400x600/cfd724b6c9787736f348e31215e271a11fd99935.pnj)
+
+## '*•.¸♡ Ｉ　ＬＯＶＥ　ＭＹ　ＷＩＦＥ！ ♡¸.•*'
