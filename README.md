@@ -1,10 +1,4 @@
-> [!IMPORTANT]
-> [**PLEASE _DO YOUR DAILY CLICK TO HELP PALESTINE!_ THANK YOU <3**](https://arab.org/click-to-help/palestine/)
-
-
-![free-palestine](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3c6c2fb8-b01f-4643-ac66-9d2c8997f099/dgdu0co-9c478f4d-c5cc-4e2e-92fb-8348451745c1.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNjNmMyZmI4LWIwMWYtNDY0My1hYzY2LTlkMmM4OTk3ZjA5OVwvZGdkdTBjby05YzQ3OGY0ZC1jNWNjLTRlMmUtOTJmYi04MzQ4NDUxNzQ1YzEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.D65TFgBm-rCft23jNDrmQoLHZqZD8rd53eR1QIzt6JY) 
-![free-palestine](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/306cf5f5-6e4b-4683-b96a-b4a4e93d630a/dh201la-e8aa35ad-c8b2-4c21-9dfc-7fd1568ec892.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzMwNmNmNWY1LTZlNGItNDY4My1iOTZhLWI0YTRlOTNkNjMwYVwvZGgyMDFsYS1lOGFhMzVhZC1jOGIyLTRjMjEtOWRmYy03ZmQxNTY4ZWM4OTIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Q6NU5tAJgrJD4eAkouHsMMstb4aPD62241sXsj28Iv4) 
-![free-palestine](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3c6c2fb8-b01f-4643-ac66-9d2c8997f099/dgdu0co-9c478f4d-c5cc-4e2e-92fb-8348451745c1.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNjNmMyZmI4LWIwMWYtNDY0My1hYzY2LTlkMmM4OTk3ZjA5OVwvZGdkdTBjby05YzQ3OGY0ZC1jNWNjLTRlMmUtOTJmYi04MzQ4NDUxNzQ1YzEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.D65TFgBm-rCft23jNDrmQoLHZqZD8rd53eR1QIzt6JY)
+> ![free-palestine](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3c6c2fb8-b01f-4643-ac66-9d2c8997f099/dgdu0co-9c478f4d-c5cc-4e2e-92fb-8348451745c1.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNjNmMyZmI4LWIwMWYtNDY0My1hYzY2LTlkMmM4OTk3ZjA5OVwvZGdkdTBjby05YzQ3OGY0ZC1jNWNjLTRlMmUtOTJmYi04MzQ4NDUxNzQ1YzEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.D65TFgBm-rCft23jNDrmQoLHZqZD8rd53eR1QIzt6JY) [**PLEASE _DO YOUR DAILY CLICK TO HELP PALESTINE!_ THANK YOU <3**](https://arab.org/click-to-help/palestine/)
 
 
 ![hi](https://i.imgur.com/Em2whpW.gif)
@@ -25,7 +19,9 @@
 
 :rage1: ↳ **DONT STEAL MY SKINS PLEASE!** ↲ :suspect:
 
-![broly](https://64.media.tumblr.com/6646d775a25b3e0212fdda18870e4ef4/0156889ba409db7e-50/s400x600/cfd724b6c9787736f348e31215e271a11fd99935.pnj)
+![dante1](https://64.media.tumblr.com/1de69da7a691dbac1faa215d60fb2d20/e3f3f86e16ebc0f4-53/s100x200/368ff1d802960cdc11b8693ef54d9ec79f61c11f.gifv)
+![dante2](https://64.media.tumblr.com/4e86da647d08044bbd70637f020343a1/e3f3f86e16ebc0f4-84/s100x200/9d49575b24408c3d37993e973380292dac8e8153.pnj)
+![dante3](https://64.media.tumblr.com/45a13df9a026edfa58b9a04af2abd638/e3f3f86e16ebc0f4-bb/s100x200/fde57ef3dace66084c2d8776a39dc0576e51eaf7.gifv)
 
 ## '*•.¸♡ Ｉ　ＬＯＶＥ　ＭＹ　ＷＩＦＥ！ ♡¸.•*'
 
