@@ -9,11 +9,11 @@
 
 ˚✧ <sub> extra info at [this repository](https://github.com/loudbarking/weedchiefer) </sub>
 
-✧˚ · . <sub> pls pls pls *interact if we share interests* <3 </sub>
+✧˚ · . <sub> pls pls pls *interact if we share interests* <3 especially if it's </sub> <ins> <sup> DEVIL MAY CRY </sup> </ins> <sub> or </sub> <ins> <sup> TEAM FORTRESS 2 </sup> </ins> ₊˚⊹♡
 
 ˚✧ <sub> if you want to just *take inspiration* from my skins, you can, but *please inform me* (whisper or mention on my atabook!) </sub>
 
-✧˚ · . <sub> often, i'm offtab either playing a video game, or editing a site! </sub>
+✧˚ · . <sub> often, i'm offtab either playing a video game, drawing, writing, or editing a site! </sub>
 
 ˚✧ <sub> i'm so sorry if i miss a whisper from you :( i'll try to respond most of the time!!! </sub>
 
