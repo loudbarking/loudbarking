@@ -13,9 +13,13 @@
 
 ˚✧ <sub> if you want to just *take inspiration* from my skins, you can, but *please inform me* (whisper or mention on my atabook!) </sub>
 
-✧˚ · . <sub> often, i'm offtab either playing a video game, drawing, writing, or editing a site! </sub>
+✧˚ · . <sub> often, *i'm offtab* either playing a *video game, drawing*, writing, or editing a site! </sub>
 
-˚✧ <sub> i'm so sorry if i miss a whisper from you :( i'll try to respond most of the time!!! </sub>
+˚✧ <sub> *i'm so sorry if i miss a whisper from you* :( i'll try to respond most of the time!!! </sub>
+
+✧˚ · . <sub> if i followed u on here, *i likely saw u on pt and thought ur skin was awesomesauce* x3c </sub>
+
+˚✧ <sub> *i hide people freely,* so just don't come up to me with negative energy or any sort of harassment! pls n thanx! <3 </sub>
 
 :rage1: ↳ **DONT STEAL MY SKINS PLEASE!** ↲ :suspect:
 
