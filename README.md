@@ -7,6 +7,9 @@
 
 ⇢ ˗ˏˋ <ins> **greetings, sillies** </ins> ೃ⁀➷
 
+
+ ⋆ MY ART COMMISSIONS ARE OPEN! check my [strawpage](https://stonedcertified.straw.page) for info! ⋆
+
 ˚✧ <sub> extra info at [this repository](https://github.com/loudbarking/weedchiefer) </sub>
 
 ![tailsdoll](https://media.tenor.com/w8hZfyRSiDEAAAAi/tailsdoll.gif)
