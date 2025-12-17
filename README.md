@@ -1,6 +1,8 @@
 <h3 align="center">
   FUCK THE NEW GITHUB ADMINS, FUCK ICE, ALL OF YOU ARE WORTHLESS CHUDS!!!!! ill move to patreon soon sry i have to replace so many skins and see how it even works
 
+  .
+
   [**PLEASE _DO YOUR DAILY CLICK TO HELP PALESTINE!_ THANK YOU <3**](https://arab.org/click-to-help/palestine/)
 
 ![free-palestine](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3c6c2fb8-b01f-4643-ac66-9d2c8997f099/dgdu0co-9c478f4d-c5cc-4e2e-92fb-8348451745c1.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNjNmMyZmI4LWIwMWYtNDY0My1hYzY2LTlkMmM4OTk3ZjA5OVwvZGdkdTBjby05YzQ3OGY0ZC1jNWNjLTRlMmUtOTJmYi04MzQ4NDUxNzQ1YzEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.D65TFgBm-rCft23jNDrmQoLHZqZD8rd53eR1QIzt6JY) 
