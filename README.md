@@ -1,4 +1,5 @@
 <h3 align="center">
+  FUCK THE NEW GITHUB ADMINS, FUCK ICE, ALL OF YOU ARE WORTHLESS CHUDS!!!!! ill move to patreon soon sry i have to replace so many skins and see how it even works
 
   [**PLEASE _DO YOUR DAILY CLICK TO HELP PALESTINE!_ THANK YOU <3**](https://arab.org/click-to-help/palestine/)
 
