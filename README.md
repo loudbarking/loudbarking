@@ -1,7 +1,4 @@
 <h3 align="center">
-  FUCK THE NEW GITHUB ADMINS, FUCK ICE, ALL OF YOU ARE WORTHLESS CHUDS!!!!! ill move to patreon soon sry i have to replace so many skins and see how it even works
-
-  .
 
   [**PLEASE _DO YOUR DAILY CLICK TO HELP PALESTINE!_ THANK YOU <3**](https://arab.org/click-to-help/palestine/)
 
@@ -15,9 +12,11 @@
 
 ˚✧ <sub> extra info at [this repository](https://github.com/loudbarking/weedchiefer) </sub>
 
-![tailsdoll](https://media.tenor.com/w8hZfyRSiDEAAAAi/tailsdoll.gif)
+![jax](https://i.postimg.cc/Qxj6gBYT/jax-tadc.gif)
 
-✧˚ · . <sub> pls pls pls *interact if we share interests* <3 especially if it's <ins> HOMESTUCK </ins> or <ins> TEAM FORTRESS 2 </ins> ₊˚⊹♡
+⚠︎ <sub> IF U DON'T LIKE/DON'T WANT TO HEAR ABOUT WEED, DNI.... IM A HUGE STONER ^^' </sub> ⚠︎
+
+✧˚ · . <sub> pls pls pls *interact if we share interests* <3 especially if it's <ins> TADC </ins> or <ins> TEAM FORTRESS 2 </ins> ₊˚⊹♡
 
 ˚✧ <sub> if you want to just *take inspiration* from my skins, you can, but *please inform me* (whisper or mention on my atabook!) </sub>
 
@@ -34,6 +33,9 @@
 ![soldier](https://64.media.tumblr.com/01a66594a65092ead1e67786969d9522/a8ab7cd365f55831-eb/s250x400/b69c3f3ab7ebeacd3eb559148827699201f2fe52.gifv)
 
  '*•.¸♡ Ｉ　ＬＯＶＥ　ＭＹ　ＷＩＦＥ！ ♡¸.•*'
+ 
+![stnr](https://i.postimg.cc/CRsvZng8/7373d484-original.gif)
+
 <h1 align="center">
 
 ![weed](https://64.media.tumblr.com/bc3467ac788bed3cfb7d9e13ecfd7480/208c53463d30577d-93/s2048x3072/35684977d32910b2ece8e2d67f54421dcb25e20d.pnj)
