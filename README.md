@@ -26,7 +26,7 @@
 
 ✧˚ · . <sub> if i followed u on here, *i likely saw u on pt and thought ur skin was awesomesauce* x3c </sub>
 
-˚✧ <sub> *i hide people freely,* so just don't come up to me with negative energy or any sort of harassment! pls n thanx! <3 </sub>
+˚✧ <sub> *i hide people freely,* so don't come up to me with negative energy or any sort of harassment! pls n thanx! <3 </sub>
 
 :rage1: ↳ **DONT STEAL MY SKINS PLEASE!** ↲ :suspect:
 
