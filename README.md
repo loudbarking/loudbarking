@@ -14,7 +14,7 @@
 
 ![jax](https://i.postimg.cc/Qxj6gBYT/jax-tadc.gif)
 
-⚠︎ <sub> IF U DON'T LIKE/DON'T WANT TO HEAR ABOUT WEED, DNI.... IM A HUGE STONER ^^' </sub> ⚠︎
+⚠︎ IF U DON'T LIKE/DON'T WANT TO HEAR ABOUT WEED, DNI.... IM A HUGE STONER ^^' ⚠︎
 
 ✧˚ · . <sub> pls pls pls *interact if we share interests* <3 especially if it's <ins> TADC </ins> or <ins> TEAM FORTRESS 2 </ins> ₊˚⊹♡
 
