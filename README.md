@@ -16,7 +16,7 @@
 
 ⚠︎ IF U DON'T LIKE/DON'T WANT TO HEAR ABOUT WEED, DNI.... IM A HUGE STONER ^^' ⚠︎
 
-✧˚ · . <sub> pls pls pls *interact if we share interests* <3 especially if it's <ins> TADC </ins> or <ins> TEAM FORTRESS 2 </ins> ₊˚⊹♡
+✧˚ · . <sub> pls pls pls *interact if we share interests* <3 especially if it's <ins> TADC </ins>, <ins> DW </ins> or <ins> TF2 </ins> ₊˚⊹♡
 
 ˚✧ <sub> if you want to just *take inspiration* from my skins, you can, but *please inform me* (whisper or mention on my atabook!) </sub>
 
