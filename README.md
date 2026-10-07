@@ -1,24 +1,25 @@
 <h3 align="center">
+  <img width="200" height="11" alt="tumblr_08db78ea493d778db34d24dfba142297_370e9fff_400" src="https://github.com/user-attachments/assets/5977c256-aabc-4cb7-95c8-00b5866cd19e" />
+  
+<img width="43" height="62" alt="5Qd6aMF" src="https://github.com/user-attachments/assets/3a1595b8-37aa-4dd0-bc40-6020a46e26c9" /> <img width="43" height="62" alt="65592249_wJezfzUQ9y9XqUT" src="https://github.com/user-attachments/assets/185624c5-7575-4ed7-838c-e9c805da0f7e" /> <img width="99" height="57" alt="tumblr_914df7b9db5a2b1376a6c83733f4a5ed_90c97093_100" src="https://github.com/user-attachments/assets/97a80846-3459-4e61-933c-5ec9a9a05c8e" /> <img width="100" height="56" alt="68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d702e636f6d2f662f33633663326662382d623031662d343634332d616336362d3964326338393937663039392f646764753063" src="https://github.com/user-attachments/assets/9564ecb7-891d-41e1-aead-7e9a27b54524" />
+ <img width="99" height="57" alt="tumblr_914df7b9db5a2b1376a6c83733f4a5ed_90c97093_100" src="https://github.com/user-attachments/assets/97a80846-3459-4e61-933c-5ec9a9a05c8e" /> <img width="43" height="62" alt="65592249_wJezfzUQ9y9XqUT" src="https://github.com/user-attachments/assets/185624c5-7575-4ed7-838c-e9c805da0f7e" /> <img width="43" height="62" alt="5Qd6aMF" src="https://github.com/user-attachments/assets/3a1595b8-37aa-4dd0-bc40-6020a46e26c9" />
 
+  
   [**PLEASE _DO YOUR DAILY CLICK TO HELP PALESTINE!_ THANK YOU <3**](https://arab.org/click-to-help/palestine/)
 
-![free-palestine](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3c6c2fb8-b01f-4643-ac66-9d2c8997f099/dgdu0co-9c478f4d-c5cc-4e2e-92fb-8348451745c1.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNjNmMyZmI4LWIwMWYtNDY0My1hYzY2LTlkMmM4OTk3ZjA5OVwvZGdkdTBjby05YzQ3OGY0ZC1jNWNjLTRlMmUtOTJmYi04MzQ4NDUxNzQ1YzEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.D65TFgBm-rCft23jNDrmQoLHZqZD8rd53eR1QIzt6JY) 
+ 
+<img width="10" height="10" alt="wopamgangnamstyleopopopopwopamgangnamstyle-dancing" src="https://github.com/user-attachments/assets/7c6fc1f1-b3af-412e-a289-1932920775ff" /> <img width="15" height="15" alt="wopamgangnamstyleopopopopwopamgangnamstyle-dancing" src="https://github.com/user-attachments/assets/7c6fc1f1-b3af-412e-a289-1932920775ff" /> <img width="20" height="20" alt="wopamgangnamstyleopopopopwopamgangnamstyle-dancing" src="https://github.com/user-attachments/assets/7c6fc1f1-b3af-412e-a289-1932920775ff" /> <img width="70" height="70" alt="pet engie" src="https://github.com/user-attachments/assets/f32bd055-206e-4896-ac79-f2a56f0b0b31" /> <img width="20" height="20" alt="wopamgangnamstyleopopopopwopamgangnamstyle-dancing" src="https://github.com/user-attachments/assets/7c6fc1f1-b3af-412e-a289-1932920775ff" /> <img width="15" height="15" alt="wopamgangnamstyleopopopopwopamgangnamstyle-dancing" src="https://github.com/user-attachments/assets/7c6fc1f1-b3af-412e-a289-1932920775ff" /> <img width="10" height="10" alt="wopamgangnamstyleopopopopwopamgangnamstyle-dancing" src="https://github.com/user-attachments/assets/7c6fc1f1-b3af-412e-a289-1932920775ff" />
 
 
-⇢ ˗ˏˋ <ins> **greetings, sillies** </ins> ೃ⁀➷
 
+  <video src="https://github.com/user-attachments/assets/bf645bd9-cb81-4650-900f-b60f64792bd2" controls></video>
 
- ⋆ MY ART COMMISSIONS ARE OPEN! check my [strawpage](https://stonedcertified.straw.page) for info! ⋆
+<img width="420" height="18" alt="tumblr_08db78ea493d778db34d24dfba142297_370e9fff_400" src="https://github.com/user-attachments/assets/5977c256-aabc-4cb7-95c8-00b5866cd19e" />
 
 ˚✧ <sub> extra info at [this repository](https://github.com/loudbarking/weedchiefer) </sub>
 
-![jax](https://i.postimg.cc/Qxj6gBYT/jax-tadc.gif)
 
 ⚠︎ IF U DON'T LIKE/DON'T WANT TO HEAR ABOUT WEED, DNI.... IM A HUGE STONER ^^' ⚠︎
-
-✧˚ · . <sub> pls pls pls *interact if we share interests* <3 especially if it's <ins> TADC </ins>, <ins> DW </ins> or <ins> TF2 </ins> ₊˚⊹♡
-
-˚✧ <sub> if you want to just *take inspiration* from my skins, you can, but *please inform me* (whisper or mention on my atabook!) </sub>
 
 ✧˚ · . <sub> often, *i'm offtab* either playing a *video game, drawing*, writing, or editing a site! </sub>
 
